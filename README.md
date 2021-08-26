@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Redeaimfire
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...NFT education for beginners
+
 - 🌱 I’m currently learning ...about NFT collecting
 - 💞️ I’m looking to collaborate on ... finding best NFT projects for investment, fun
 - 📫 How to reach me ...upsfanatic@hotmail.com
